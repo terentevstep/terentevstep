@@ -4,4 +4,4 @@
   - email: stephaniterenteva@gmail.com
   - Telegram: [hot_sneg](https://t.me/step_ter)
  
-Fun fact: I love anime and crypto💸
+Fun fact: I love anime (🦄,🦄) and crypto💸
